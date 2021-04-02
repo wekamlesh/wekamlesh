@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wekamlesh
+- 👋 Hi, I’m Kamlesh
 - 👀 I’m interested in computers 
 - 🌱 I’m currently learning everything I can 
 - 💞️ I’m looking to collaborate on Everyone who is in tech 
