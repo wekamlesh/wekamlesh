@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kamlesh
-- 👀 I’m interested in computers 
+- 👀 I’m interested in web stuff
 - 🌱 I’m currently learning everything I can 
 - 💞️ I’m looking to collaborate on Everyone who is in tech 
 - 📫 How to reach me @merugu_kamlesh 
